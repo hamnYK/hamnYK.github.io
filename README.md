@@ -1,1 +1,0 @@
-# hamnyk.github.io
